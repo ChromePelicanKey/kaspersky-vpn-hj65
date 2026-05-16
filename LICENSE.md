@@ -1,4 +1,4 @@
-
+Get the ultimate Bitdefender VPN plugin with automatic Bitdefender VPN Plugin | WireGuard-support + end-to-end-encryption. Featuring WireGuard-support and end-to-end-encryption,
 
 
 
